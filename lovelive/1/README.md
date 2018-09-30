@@ -59,8 +59,13 @@ You not the only one.
 - What she over sleep again.
 
 ## UTX
-This is school.
-Well come to the UTX high.
-School idols?
+- This is school.
+- Well come to the UTX high.
+- They are a-rise
+- Yea, School idols.
+- School idols?
+
+- Excuse me.
+
 
 This is a brilliant.
