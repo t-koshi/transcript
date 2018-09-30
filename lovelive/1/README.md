@@ -4,3 +4,5 @@
 - [日本語+字幕](https://www1.9anime.to/watch/love-live-school-idol-project.yklj/574x5m)
 
 # 翻訳
+Ho no. I was only Dreaming. Good mornig ladies. It's another glorious day today.
+Hey Honoka. Are you feeling any better now?
