@@ -28,3 +28,14 @@ I found today it too.
 It's not something you to warry about that.
 
 Such as history, traditions, 
+
+You not the only one.
+
+What are you doing mom.
+
+Sure go ready head.
+
+<UTXのシーン>
+This is school.
+Well come to the UTX high.
+School idols?
