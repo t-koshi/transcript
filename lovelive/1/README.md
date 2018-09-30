@@ -25,6 +25,8 @@ Altough,
 
 So the current class years
 
+- Oh stop. You're not doomed.
+
 ## 中庭
 You have a second.
 
