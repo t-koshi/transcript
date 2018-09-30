@@ -30,7 +30,7 @@ So the current class years
 ## 中庭
 You have a second.
 
-cansel president.
+- Council president.
 
 I found today it too.
 
