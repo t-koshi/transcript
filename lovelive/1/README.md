@@ -4,13 +4,13 @@
 - [日本語+字幕](https://www1.9anime.to/watch/love-live-school-idol-project.yklj/574x5m)
 
 # 翻訳
-### ほのかの部屋
+## ほのかの部屋
 Oh no. I was only Dreaming. Hi!. Morning. Hello. Hi!. Good mornig ladies. It's another glorious day today.
 
 Girls: Looks like she lost it for real this time. Being cheerful isn't really unusual for her but... 
 I don't think she gets it really.
 
-### 教室
+## 教室
 Hey Honoka. Are you feeling any better now?
 
 After we graduate
@@ -21,7 +21,7 @@ Altough,
 
 So the current class years
 
-### 中庭
+## 中庭
 You have a second.
 
 cansel president.
@@ -38,7 +38,7 @@ What are you doing mom.
 
 Sure go ready head.
 
-### UTX
+## UTX
 
 This is school.
 Well come to the UTX high.
