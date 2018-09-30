@@ -4,7 +4,7 @@
 - [日本語+字幕](https://www1.9anime.to/watch/love-live-school-idol-project.yklj/574x5m)
 
 # 翻訳
-## ほのかの部屋
+## 部屋
 Oh no. I was only Dreaming. Hi!. Morning.
 
 ## 廊下
