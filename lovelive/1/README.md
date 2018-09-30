@@ -8,9 +8,10 @@
 Oh no. I was only Dreaming. Hi!. Morning.
 
 ## 廊下
-Honoka: Hello. Hi!. Good mornig ladies. It's another glorious day today.
-Girls: Looks like she lost it for real this time. Being cheerful isn't really unusual for her but... 
-I don't think she gets it really.
+- Honoka: Hello. Hi!. Good mornig ladies. It's another glorious day today.
+- Girls1: Looks like she lost it for real this time.
+- Girls2: Being cheerful isn't really unusual for her but... 
+- Girls3: I don't think she gets it really.
 
 ## 教室
 Hey Honoka. Are you feeling any better now?
