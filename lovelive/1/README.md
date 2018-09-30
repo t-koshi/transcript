@@ -14,7 +14,8 @@ Oh no. I was only Dreaming. Hi!. Morning.
 - Girls3: I don't think she gets it really.
 
 ## 教室
-Hey Honoka. Are you feeling any better now?
+- Kotori: Hey Honoka. Are you feeling any better now?
+- Honoka: It wasn't a dream. Our school is really gonna close.
 
 After we graduate
 
