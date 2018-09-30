@@ -42,10 +42,23 @@ You not the only one.
 
 ## 家
 - What are you doing mom.
-- Sure go ready head.
+- Mom, Would you looking at.
+- Oh honoka. When did you come in.
+- As been standing while.
+- Can I use the bath first.
+- Sure go ready ahead.
+- I was just finishing.
+- Graduation photos.
+
+## 家の前
+- Already mom, sea.
+- Yukiho, Are you boring 
+- May be elementary field trip.
+
+## 神社の前
+- What she over sleep again.
 
 ## UTX
-
 This is school.
 Well come to the UTX high.
 School idols?
